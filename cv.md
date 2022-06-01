@@ -28,6 +28,3 @@ Key achievements:
 •	Created a marketing department from scratch, producing product conception, positioning, key-visuals, taglines, that significantly increased brand awareness.
 •	Worked hard on SMM development and we got +2.5K followers in IG, +2K followers in FB in 6 months.
 •	Developed and successfully launched an e-Commerce B2B project in Russia in collaboration with local team.
-
-![image](https://user-images.githubusercontent.com/100679957/171475338-d631b1c8-7c60-4377-bf7e-ffa10e8a3e0d.png)
-
